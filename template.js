@@ -6,4 +6,5 @@
 <p><a href="https://169cuanbro.glitch.me/">https://169cuanbro.glitch.me</a></p>
 <p><a href="https://eejournal.fei.tuke.sk/public/blog/">https://eejournal.fei.tuke.sk/public/blog/</a></p>
 <p><a href="https://eejournal.fei.tuke.sk/public/site/">169CUAN</a></p>
+<p><a href="https://eejournal.fei.tuke.sk/public/blog/">SLOT DEMO</a></p>
 </div>
