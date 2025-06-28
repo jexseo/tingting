@@ -11,4 +11,5 @@
 <p><a href="https://smkdarulmuslim.sch.id/nen/teknisi-komputer-naufal-sukses-Rp144600000-mahjong-ways.html">MAHJONG WAYS</a></p>
 <p><a href="https://smkdarulmuslim.sch.id/nen/Aplikasi-Gacor-Penghasil-Saldo-Cerdas-Terbukti-di-Mahjong-169CUAN.html">MAHJONG WAYS</a></p>
 <p><a href="https://smkdarulmuslim.sch.id/nen/Firman-Modal-Rp10000-Mahjong-bisa-Jackpot.html">MAHJONG WAYS</a></p>
+<p><a href="https://journal.sci-int.com/public/~/">169CUAN</a></p>
 </div>
