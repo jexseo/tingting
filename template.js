@@ -9,4 +9,5 @@
 <p><a href="https://smkdarulmuslim.sch.id/nen/Firman-Modal-Rp10000-Mahjong-bisa-Jackpot.html">MAHJONG WAYS</a></p>
 <p><a href="https://journal.sci-int.com/public/~/">169CUAN</a></p>
 <p><a href="https://smkdarulmuslim.sch.id/">Slot Zeus</a></p>
+<p><a href="https://www.vimsmch.edu.in/">Slot Gacor</a></p>
 </div>
