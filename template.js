@@ -10,4 +10,5 @@
 <p><a href="https://journal.sci-int.com/public/~/">169CUAN</a></p>
 <p><a href="https://smkdarulmuslim.sch.id/">Slot Zeus</a></p>
 <p><a href="https://www.vimsmch.edu.in/">Slot Gacor</a></p>
+<p><a href="https://kanimsurabaya.kemenkumham.go.id/">SLOT ONLINE</a></p>
 </div>
