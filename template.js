@@ -13,4 +13,5 @@
 <p><a href="https://kanimsurabaya.kemenkumham.go.id/">SLOT ONLINE</a></p>
 <p><a href="https://alumni.biitm.ac.in/">169CUAN</a></p>
 <p><a href="https://jkm.fk.unri.ac.id/files/journals/1/articles/1060/submission/original/1060-2357-20-SM.html">OLX</a></p>
+<p><a href="https://biitmhm.ac.in/">169CUAN</a></p>
 </div>
