@@ -14,4 +14,44 @@
 <p><a href="https://alumni.biitm.ac.in/">169CUAN</a></p>
 <p><a href="https://jkm.fk.unri.ac.id/files/journals/1/articles/1060/submission/original/1060-2357-20-SM.html">OLX</a></p>
 <p><a href="https://biitmhm.ac.in/">169CUAN</a></p>
+
+<!-- Discovery Template -->
+<p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
+<p><a href="https://situskita.id/fyp/cerita-inspiratif-dari-penduduk-desa-petanang-ilir-lubuklinggau-meraup-1-8-miliar.html">Cerita inspiratif dari penduduk desa petanang ilir lubuklinggau meraup 1 miliar</a></p>
+<p><a href="https://situskita.id/fyp/cerita-pemuda-magelang-optimis-raih-ratusan-juta-dari-mahjong.html">Cerita Pemuda Magelang Optimis Raih Ratusan Juta Dari Mahjong</a></p>
+<p><a href="https://situskita.id/fyp/dukung-masyarakat-bali-hadapi-tantangan-teknologi-lewat-mahjong.html">Dukung Masyarakat Bali Hadapi Tantangan Teknologi Lewat Mahjong</a></p>
+<p><a href="https://situskita.id/fyp/fakta-menarik-tentang-black-scatter-di-solo-ini-rinciannya.html">Fakta Menarik Tentang Black Scatter di Solo Ini Rinciannya</a></p>
+<p><a href="https://situskita.id/fyp/https://situskita.id/fyp/game-pgsoft-ini-katanya-paling-maknyos-2025-ini-bukti-rtp-nya.html">Game PGSOFT Ini Katanya Paling Maknyos 2025 Ini Bukti RTP nya</a></p>
+<p><a href="https://situskita.id/fyp/gates-of-olympus-jadi-perbincangan-hangat-di-dunia-game-online.html">Gates of Olympus Jadi Perbincangan Hangat di Dunia Game Online</a></p>
+<p><a href="https://situskita.id/fyp/ikuti-aspirasi-member-luncurkan-fitur-terbaru-di-banjarmasin.html">Ikuti Aspirasi Member Luncurkan Fitur Terbaru di Banjarmasin</a></p>
+<p><a href="https://situskita.id/fyp/kampung-scatter-di-cirebon-jadi-pusat-edukasi-strategi-game-online.html">Kampung Scatter di Cirebon Jadi Pusat Edukasi Strategi Game Online</a></p>
+<p><a href="https://situskita.id/fyp/kuliner-scatter-naga-hitam-mahjong-wajib-dicoba-warga-tangerang-banten.html">Kuliner Scatter Naga Hitam Mahjong Wajib Dicoba Warga Tanggerang</a></p>
+<p><a href="https://situskita.id/fyp/mahjong-permainan-tradisional-tiongkok-dengan-scatter-hitam-yang-meledak-beruntun.html">Mahjong Permainan Tradisional Tiongkok Dengan Scatter Hitam Yang Meledak Beruntun</a></p>
+<p><a href="https://situskita.id/fyp/mas-bagus-dapat-transferan-rp28-juta-dari-lucky-neko.html">Mas Bagus Dapat Transferan Rp28000000 Juta Dari Lucky Neko</a></p>
+<p><a href="https://situskita.id/fyp/masyarakat-banda-aceh-takjub-dengan-scatter-beruntun-ternyata-tiap-hari-dapat-uang-tambahan-di-169cuan.html">Masyarakat Banda Aceh Takjub Dengan Scatter Beruntun Ternyata Tiap Hari Dapat Uang Tambahan Di 169CUAN</a></p>
+<p><a href="https://situskita.id/fyp/masyarakat-jakarta-temukan-harapan-dari-sweet-bonanza.html">Masyarakat Jakarta Temukan Harapan Dari Sweet Bonanza</a></p>
+<p><a href="https://situskita.id/fyp/melatih-emosi-dan-fokus-lewat-permainan-mahjong-ways-di-cirebon.html">Melatih Emosi dan Fokus Lewat Permainan Mahjong Ways Di Cirebon</a></p>
+<p><a href="https://situskita.id/fyp/metode-rumus-pecahkan-pola-scatter-gates-of-olympus-1000.html">Metode Rumus Pecahkan Pola Scatter Gates of Olympus 1000</a></p>
+<p><a href="https://situskita.id/fyp/modal-handphone-oppo-find-n5-sudah-bisa-menang-besar-main-game-online-candy-crush.html">Modal Handphone OPPO Find N5 Sudah Bisa Menang Besar Game Online Candy Crush</a></p>
+<p><a href="https://situskita.id/fyp/pak-aldo-guru-honorer-asal-sukabumi-bikin-geger-warganet-setelah-menang-rp678-juta-dari-mahjong-ways-2.html">Pak Aldo Guru Honorer Asal Sukabumi Bikin Geger Warganet Setelah Menang Rp678000000 Juta Dari Mahjong Ways 2</a></p>
+<p><a href="https://situskita.id/fyp/pemain-asal-semarang-tak-sabar-tunggu-bonus-berikutnya-dari-game-online.html">Pemain Asal Semarang Tak Sabar Tunggu Bonus Berikutnya Dari Game Online</a></p>
+<p><a href="https://situskita.id/fyp/pemain-balikpapan-sambut-era-mahjong-wins-3-bersama-para-warga.html">Pemain Balikpapan Sambut Era Mahjong Wins 3 Bersama Para Warga</a></p>
+<p><a href="https://situskita.id/fyp/Pemain-Bandung-Raup-Bonus-Besar-Ternyata-Berhasil-Kalahkan-Scatter-Hitam.html">Pemain Bandung Raup Bonus Besar Ternyata Berhasil Kalahkan Scatter Hitam</a></p>
+<p><a href="https://situskita.id/fyp/pemerintahan-menghimbau-warga-surabaya-waspadai-tren-scatter-abal-abal.html">Pemeerintahan Manis Sweet Bonanza Bantu Lampung Hadapi Dampak Iklim</a></p>
+<p><a href="https://situskita.id/fyp/terbongkar-ini-dia-game-pgsoft-baru-yang-lagi-viral-mahjong-ways-2.html">Terbongkar Ini Dia Game PGSOFT Baru Yang Lagi Viral Mahjong Ways 2</a></p>
+<p><a href="https://situskita.id/fyp/tukang-ukir-kayu-bernama-maskur-ikut-teman-coba-aztec-warrior.html">Tukang Ukir Kayu Bernama Maskur Ikut teman Coba Aztec Warrior</a></p>
+<p><a href="https://situskita.id/fyp/viral-seorang-pemuda-ungkap-potensi-scatter-mahjong-ways-terbaik-di-surakarta.html">Viral Seorang Pemuda Ungkap Potensi Scatter Mahjong Ways Terbaik Di Surakarta</a></p>
+<p><a href="https://situskita.id/fyp/warga-depok-nikmati-sistem-scatter-sweet-bonanza-1000-mudah-menang-dalam-5x-spin.html">Warga Depok Nikmati Sistem Scatter Sweet Bonanza 1000 Mudah Menang Dalam 5x Spin</a></p>
+<p><a href="https://situskita.id/fyp/warga-purwakarta-wajib-tahu-cara-kurangi-risiko-rugi-saat-scatter-sweet-bonanza-tidak-muncul.html">Warga Purwakarta Wajib Tahu Cara Kurangi Risiko Rugi Saat Scatter Sweet Bonanza Tidak Muncul</a></p>
+<p><a href="https://situskita.id/fyp/seorang-pemuda-majalengka-viral-setelah-meraup-rp63-juta-dari-mahjong-ways-2.html">Seorang Pemuda Majalengka Viral Setelah Meraup Rp63000000 Juta Dari Mahjong Ways 2</a></p>
+<p><a href="https://situskita.id/fyp/youtuber-live-main-mahjong-ways-2-tembus-rp194-juta-98-persen-viewer-catat-pola-autospin-tikTok.html">Youtuber Live Main Mahjong Ways 2 Tembus Rp194000000 Juta 98 Persen Viewer Catat Pola Autospin Tiktok</a></p>
+<p><a href="https://situskita.id/fyp/dapat-rezeki-nomplok-dari-scatter-hitam-mahjong-ways.html">Dapat Rezeki Nomplok Dari Scatter Hitam Mahjong Ways</a></p>
+<p><a href="https://situskita.id/fyp/terungkap-kisah-mengejutkan-mas-hardi-pegawai-pemerintahan-di-jakarta-utara-yang-mendadak-kaya-dari-mahjong-ways-2.html">Terungkap Kisah Mengejutkan Mas Hardi Pegawai Pemerintahan Di Jakarta Utara Yang Mendadak Kaya Dari Mahjong Ways 2</a></p>
+<p><a href="https://situskita.id/fyp/suasana-malam-yang-jadi-indah-ketika-maxwin-2x-dari-sweet-bonanza-cuma-modal-50-ribu.html">Suasana Malam Yang Jadi Indah ketika Maxwin 2x Dari Sweet Bonanza Cuma Modal Rp50 Ribu</a></p>
+<p><a href="https://situskita.id/fyp/tugu-olympus-semoga-bisa-menjadi-ikon-baru-dan-daya-tarik-wisata-di-sindangsari.html">Tugu Olympus Semoga Bisa Menjadi Icon Baru Dan Daya Tarik Wisata Di Sindangsari</a></p>
+<p><a href="https://situskita.id/fyp/trending-di-google-rekomendasi-game-mahjong-ways-2-rtp-tertinggi-2025.html">Trending Di Google Rekomendasi Game Mahjong Ways 2 RTP Tertinggi 2025</a></p>
+<p><a href="https://situskita.id/fyp/sensasi-baru-menyapa-medan-tukang-es-keliling-raih-cuan-dari-sweet-bonanza.html">Sensasi Baru Menyapa Medan Tukang Es Keliling Raih Cuan Dari Sweet Bonanza</a></p>
+<p><a href="https://situskita.id/fyp/viral-pemuda-pengangguran-lampung-menang-rp15-juta-dari-mahjong-ways.html">Viral Pemuda Pengangguran Lampung Menang Rp15000000 Juta Dari Mahjong Ways</a></p>
+<p><a href="https://situskita.id/fyp/guru-sdn-negeri-pinggiran-menang-rp78-juta-di-sugar-rush-98-persen-muridnya-ikut-pola-dan-raih-bonus-besar.html">Guru SDN Negeri Pinggiran Menang Rp78000000 Juta Di Sugar Rush 98 Persen Muridnya Ikut Pola Dan Raih Bonus Besar</a></p>
+<p><a href="https://situskita.id/fyp/guru-sdn-negeri-pinggiran-menang-rp78-juta-di-sugar-rush-98-persen-muridnya-ikut-pola-dan-raih-bonus-besar.html">Guru SDN Negeri Pinggiran Menang Rp78000000 Juta Di Sugar Rush 98 Persen Muridnya Ikut Pola Dan Raih Bonus Besar</a></p>
 </div>
