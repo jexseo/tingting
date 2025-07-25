@@ -14,6 +14,7 @@
 <p><a href="https://alumni.biitm.ac.in/">169CUAN</a></p>
 <p><a href="https://jkm.fk.unri.ac.id/files/journals/1/articles/1060/submission/original/1060-2357-20-SM.html">OLX</a></p>
 <p><a href="https://biitmhm.ac.in/">169CUAN</a></p>
+<p><a href="https://suryaaksara.umpwr.ac.id/mahjong/">mahjong slot</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
