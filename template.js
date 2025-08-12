@@ -54,7 +54,7 @@
 <p><a href="https://situskita.id/fyp/sensasi-baru-menyapa-medan-tukang-es-keliling-raih-cuan-dari-sweet-bonanza.html">Sensasi Baru Menyapa Medan Tukang Es Keliling Raih Cuan Dari Sweet Bonanza</a></p>
 <p><a href="https://situskita.id/fyp/viral-pemuda-pengangguran-lampung-menang-rp15-juta-dari-mahjong-ways.html">Viral Pemuda Pengangguran Lampung Menang Rp15000000 Juta Dari Mahjong Ways</a></p>
 <p><a href="https://situskita.id/fyp/guru-sdn-negeri-pinggiran-menang-rp78-juta-di-sugar-rush-98-persen-muridnya-ikut-pola-dan-raih-bonus-besar.html">Guru SDN Negeri Pinggiran Menang Rp78000000 Juta Di Sugar Rush 98 Persen Muridnya Ikut Pola Dan Raih Bonus Besar</a></p>
-<p><a href="https://journal.shantibhuana.ac.id/edu/strategi-mahjong-ways-2-pengakuan-member-baginda799-di-singkawang.html">rtp live baginda799 bikin heboh komunitas dengan formula gacor</a></p>
+<p><a href="https://journal.shantibhuana.ac.id/edu/strategi-mahjong-ways-2-pengakuan-member-baginda799-di-singkawang.html">	strategi mahjong ways 2 pengakuan member baginda799 di singkawang</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/edu/di-baginda799-tersimpan-kisah-penuh-cuan-dari-mahong-ways.html">di baginda799 tersimpan kisah penuh cuan dari mahong ways</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/edu/gates-of-olympus-viral-karena-pola-unik-di-room-baginda799.html">gates of olympus viral karena pola unik di room baginda799</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/edu/sweet-bonanza-dianggap-biasa-ternyata-jadi-jutawan-di-baginda799.html">sweet bonanza dianggap biasa ternyata jadi jutawan di baginda799</a></p>
