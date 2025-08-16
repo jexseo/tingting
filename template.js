@@ -6,7 +6,7 @@
 <p><a href="https://siatex.sdtexmacosemarang.sch.id/">SLOT MAHJONG</a></p>
 <p><a href="https://ppdb.yayasanppittexmaco.or.id/run/">SLOT RESMI</a></p>
 <p><a href="https://ppdb.yayasanppittexmaco.or.id/run/">SLOT MAXWIN</a></p>
-<p><a href="https://journal.shantibhuana.ac.id/php/">	LIVE DRAW HK LOTTO</a></p>
+<p><a href="https://journal.shantibhuana.ac.id/php/">LIVE DRAW HK LOTTO</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
