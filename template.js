@@ -9,6 +9,10 @@
 <p><a href="https://journal.shantibhuana.ac.id/php/">LIVE DRAW HK LOTTO</a></p>
 <p><a href="https://ppdb.yayasanppittexmaco.or.id/home/">SLOT DEMO</a></p>
 <p><a href="https://ppdb.yayasanppittexmaco.or.id/home/">169CUAN</a></p>
+<p><a href="https://dishaspecialschool.edu.in/disha/">SLOT777</a></p>
+<p><a href="https://dishaspecialschool.edu.in/disha/">SLOT777 GACOR</a></p>
+<p><a href="https://journal.shantibhuana.ac.id/pdf/">SLOT777</a></p>
+<p><a href="https://dishaspecialschool.edu.in/disha/">SLOT GACOR 777</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
