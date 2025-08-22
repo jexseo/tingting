@@ -14,6 +14,8 @@
 <p><a href="https://journal.shantibhuana.ac.id/pdf/">SLOT777</a></p>
 <p><a href="https://dishaspecialschool.edu.in/disha/">SLOT GACOR 777</a></p>
 <p><a href="https://ppdb.yayasanppittexmaco.or.id/">SBOBET88</a></p>
+<p><a href="https://jaskolka.edu.pl/">slot mahjong</a></p>
+<p><a href="https://jaskolka.edu.pl/">slot demo</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
