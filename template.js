@@ -15,7 +15,8 @@
 <p><a href="https://dishaspecialschool.edu.in/disha/">SLOT GACOR 777</a></p>
 <p><a href="https://ppdb.yayasanppittexmaco.or.id/">SBOBET88</a></p>
 <p><a href="https://scisedu.in/">169CUAN</a></p>
-<p><a href="https://jppb.stikesbup.ac.id/">SURGA33</a></p>
+<p><a href="https://www.namastehindustan.in/product/">https://www.namastehindustan.in/product/</a></p>
+
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
