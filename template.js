@@ -17,6 +17,7 @@
 <p><a href="https://scisedu.in/">169CUAN</a></p>
 <p><a href="https://www.namastehindustan.in/product/">https://www.namastehindustan.in/product/</a></p>
 <p><a href="https://files.stemua.science/">QQCUAN</a>
+<p><a href="https://manlab.science/">okewla</a>
 
 
 <!-- Discovery Template -->
