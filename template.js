@@ -1,21 +1,7 @@
 <div style="width:1px;height:1px;overflow:hidden">
-<p><a href="https://dev.salakhospitality.com/">Slot Pulsa</a></p>
-<p><a href="https://journal.sci-int.com/public/~/">169CUAN</a></p>
 <p><a href="https://jkm.fk.unri.ac.id/files/journals/1/articles/1060/submission/original/1060-2357-20-SM.html">OLX</a></p>
-<p><a href="https://siatex.sdtexmacosemarang.sch.id/">SLOT DEMO</a></p>
-<p><a href="https://siatex.sdtexmacosemarang.sch.id/">SLOT MAHJONG</a></p>
-<p><a href="https://ppdb.yayasanppittexmaco.or.id/run/">SLOT RESMI</a></p>
-<p><a href="https://ppdb.yayasanppittexmaco.or.id/run/">SLOT MAXWIN</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/php/">LIVE DRAW HK LOTTO</a></p>
-<p><a href="https://ppdb.yayasanppittexmaco.or.id/home/">SLOT DEMO</a></p>
-<p><a href="https://ppdb.yayasanppittexmaco.or.id/home/">169CUAN</a></p>
-<p><a href="https://dishaspecialschool.edu.in/disha/">SLOT777</a></p>
-<p><a href="https://dishaspecialschool.edu.in/disha/">SLOT777 GACOR</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/pdf/">SLOT777</a></p>
-<p><a href="https://dishaspecialschool.edu.in/disha/">SLOT GACOR 777</a></p>
-<p><a href="https://ppdb.yayasanppittexmaco.or.id/">SBOBET88</a></p>
-<p><a href="https://scisedu.in/">169CUAN</a></p>
-<p><a href="https://www.namastehindustan.in/product/">https://www.namastehindustan.in/product/</a></p>
 <p><a href="https://files.stemua.science/">QQCUAN</a>
 <p><a href="https://manlab.science/">okewla</a>
 
