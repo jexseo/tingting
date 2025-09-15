@@ -2,8 +2,9 @@
 <p><a href="https://jkm.fk.unri.ac.id/files/journals/1/articles/1060/submission/original/1060-2357-20-SM.html">OLX</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/php/">LIVE DRAW HK LOTTO</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/pdf/">SLOT777</a></p>
-<p><a href="https://files.stemua.science/">QQCUAN</a>
-<p><a href="https://manlab.science/">okewla</a>
+<p><a href="https://files.stemua.science/">QQCUAN</a></p>
+<p><a href="https://manlab.science/">okewla</a></p>
+<p><a href="https://intellect.stemua.science/">QQCUAN</a></p>
 
 
 <!-- Discovery Template -->
