@@ -5,6 +5,7 @@
 <p><a href="https://files.stemua.science/">QQCUAN</a></p>
 <p><a href="https://manlab.science/">okewla</a></p>
 <p><a href="https://intellect.stemua.science/">QQCUAN</a></p>
+<p><a href="https://journal.shantibhuana.ac.id/styles/">slot88</a>
 
 
 <!-- Discovery Template -->
