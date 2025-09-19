@@ -5,8 +5,8 @@
 <p><a href="https://files.stemua.science/">QQCUAN</a></p>
 <p><a href="https://manlab.science/">okewla</a></p>
 <p><a href="https://intellect.stemua.science/">QQCUAN</a></p>
-<p><a href="https://journal.shantibhuana.ac.id/styles/">slot88</a>
-
+<p><a href="https://journal.shantibhuana.ac.id/styles/">slot88</a></p>
+<p><a href="https://koronadalcityportal.com/about-us/">agencuan</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
