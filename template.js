@@ -3,6 +3,7 @@
 <p><a href="https://files.stemua.science/">QQCUAN</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/styles/">slot88</a></p>
 <p><a href="https://koronadalcityportal.com/about-us/">agencuan</a></p>
+<p><a href="https://nbisrjn.com/nbisdocs">link slot gacor</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
