@@ -11,6 +11,7 @@
 <p><a href="https://journal.shantibhuana.ac.id/pdf/">slot777</a></p>
 <p><a href="https://daido.co.id/product/">slot777</a></p>
 <p><a href="https://resorts.buffalocity.gov.za/">bromoslot</a></p>
+<p><a href="https://www.daido.co.id/product.html">DANASLOT</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
