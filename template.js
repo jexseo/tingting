@@ -119,4 +119,6 @@
 <p><a href="https://testat-app.com/blog/2447-mimpi-jadi-juara-internasional-mahjong-wins-3.html">cuan2447</a></p>
 <p><a href="https://testat-app.com/blog/1337-sakit-hati-dikhianati-berubah-jadi-kesabaran-maksimal-di-mahjong.html">cuan1337</a></p>
 <p><a href="https://testat-app.com/blog/1998-krisis-pola-pikir-cerdas.html">cuan1998</a></p>
+<p><a href="https://mechitharisten.org/engkol/2137-mahjong-jadi-game-favorit.html">cuan2137</a></p>
+<p><a href="https://mechitharisten.org/engkol/3999-mahjong-game-online-harumkan-surabaya.html">cuan3999</a></p>
 </div>
