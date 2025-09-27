@@ -15,6 +15,7 @@
 <p><a href="https://stemua.science/download/">agencuan</a></p>
 <p><a href="https://manlab.science/">okewla</a></p>
 <p><a href="https://pmb.stitmuhngawi.ac.id/">DANASLOT</a></p>
+<p><a href="https://ahp.ub.edu.ph/">slot bet 200</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
