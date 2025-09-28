@@ -5,7 +5,6 @@
 <p><a href="https://koronadalcityportal.com/about-us/">agencuan</a></p>
 <p><a href="https://nbisrjn.com/nbisdocs">link slot gacor</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/msd/">slot777</a></p>
-<p><a href="https://suryaaksara.umpwr.ac.id/product/">gul911</a></p>
 <p><a href="https://festivalbudayapasarblora.com/lintas">lintas808</a></p>
 <p><a href="https://api.nmrr.gov.my/gacorkang/">slot777</a></p>
 <p><a href="https://journal.shantibhuana.ac.id/pdf/">slot777</a></p>
