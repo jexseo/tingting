@@ -123,4 +123,5 @@
 <p><a href="https://mechitharisten.org/engkol/2137-mahjong-jadi-game-favorit.html">cuan2137</a></p>
 <p><a href="https://mechitharisten.org/engkol/3999-mahjong-game-online-harumkan-surabaya.html">cuan3999</a></p>
 <p><a href="https://mechitharisten.org/engkol/4646-resiko-jadi-pemain-mahjong.html">cuan4646</a></p>
+<p><a href="https://mechitharisten.org/engkol/7676-ekosistem-mahjong-surabaya-melonjak-naik.html">asia7676</a></p>
 </div>
