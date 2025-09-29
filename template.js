@@ -128,4 +128,5 @@
 <p><a href="https://mechitharisten.org/engkol/3987-mahjong-kendalikan-situasi-jakarta-saat-ini.html">asia3987</a></p>
 <p><a href="https://mechitharisten.org/news/mahjong-kembali-gunakan-arena-asia.html">mahjong kembali gunakan arena asia</a></p>
 <p><a href="https://mechitharisten.org/news/kombinasi-strategi-mahjong-terbaru-dari-supriyadi.html">kombinasi strategi mahjong terbaru dari supriyadi</a></p>
+<p><a href="https://mechitharisten.org/news/mahjong-bantu-perkuat-modal-nekat-remaja-bandung.html">mahjong bantu perkuat modal nekat remaja bandung</a></p>
 </div>
