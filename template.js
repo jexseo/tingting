@@ -3,7 +3,6 @@
 <p><a href="https://koronadalcityportal.com/about-us/">agencuan</a></p>
 <p><a href="https://nbisrjn.com/nbisdocs">link slot gacor</a></p>
 <p><a href="https://festivalbudayapasarblora.com/lintas">lintas808</a></p>
-<p><a href="https://api.nmrr.gov.my/gacorkang/">slot777</a></p>
 <p><a href="https://daido.co.id/product/">slot777</a></p>
 <p><a href="https://resorts.buffalocity.gov.za/">bromoslot</a></p>
 <p><a href="https://www.daido.co.id/product.html">DANASLOT</a></p>
@@ -16,9 +15,7 @@
 <p><a href="https://itplusdepartments.it-plus.co/">lapak77</a></p>
 <p><a href="https://joker88-5000.com/">Joker88</a></p>
 <p><a href="https://skb.salatiga.go.id/">slot88</a></p>
-<p><a href="https://epcil.or.kr/child/chace/">microgaming</a></p>
-<p><a href="https://epcil.or.kr/child/auth/">sbobet mobile</a></p>
-<p><a href="https://epcil.or.kr/child/adm/">ga28</a></p>
+<p><a href="https://koronadalcityportal.com/v2/"> sbobet mobile</a></p>
   
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
