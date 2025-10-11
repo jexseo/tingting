@@ -17,8 +17,9 @@
 <p><a href="https://skb.salatiga.go.id/">slot88</a></p>
 <p><a href="https://koronadalcityportal.com/v2/">sbobet mobile</a></p>
 <p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
-<p><a href="https://www.bridgecommanderfiles.com/">slot demo</a>
-<p><a href="https://attiqair.com/blog/">toto slot</a>
+<p><a href="https://www.bridgecommanderfiles.com/">slot demo</a></p>
+<p><a href="https://attiqair.com/blog/">toto slot</a></p>
+<p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
   
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
