@@ -15,7 +15,8 @@
 <p><a href="https://itplusdepartments.it-plus.co/">lapak77</a></p>
 <p><a href="https://joker88-5000.com/">Joker88</a></p>
 <p><a href="https://skb.salatiga.go.id/">slot88</a></p>
-<p><a href="https://koronadalcityportal.com/v2/"> sbobet mobile</a></p>
+<p><a href="https://koronadalcityportal.com/v2/">sbobet mobile</a></p>
+<p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
 <p><a href="https://www.bridgecommanderfiles.com/">slot demo</a>
   
 <!-- Discovery Template -->
