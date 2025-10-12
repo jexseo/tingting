@@ -20,8 +20,11 @@
 <p><a href="https://www.bridgecommanderfiles.com/">slot demo</a></p>
 <p><a href="https://attiqair.com/blog/">toto slot</a></p>
 <p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
-<p><a href="https://danaslot.pw/">slot deposit 5000</a>
-  
+<p><a href="https://danaslot.pw/">slot deposit 5000</a></p>
+<p><a href="https://apprenticeship.recttindia.in/Pages/">slot gacor</a></p>
+
+
+
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
 <p><a href="https://situskita.id/fyp/cerita-inspiratif-dari-penduduk-desa-petanang-ilir-lubuklinggau-meraup-1-8-miliar.html">Cerita inspiratif dari penduduk desa petanang ilir lubuklinggau meraup 1 miliar</a></p>
