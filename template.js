@@ -21,6 +21,7 @@
 <p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
 <p><a href="https://danaslot.pw/">slot deposit 5000</a></p>
 <p><a href="https://apprenticeship.recttindia.in/Pages/">slot gacor</a></p>
+<p><a href="https://1master.kz/">link gacor</a></p>
 
 
 
