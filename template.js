@@ -23,7 +23,8 @@
 <p><a href="https://apprenticeship.recttindia.in/Pages/">slot gacor</a></p>
 <p><a href="https://1master.kz/">link gacor</a></p>
 <p><a href="https://smkdarulmuslim.sch.id">https://smkdarulmuslim.sch.id/</a></p>
-
+<p><a href="https://genosys.pro">https://genosys.pro/</a></p>
+<p><a href="https://holodservice.kz">https://holodservice.kz/</a></p>
 
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
