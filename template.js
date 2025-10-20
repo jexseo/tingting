@@ -28,7 +28,9 @@
 <p><a href="https://pizza-luigi.kz/">slot gacor 4d</a></p>
 <p><a href="https://1master.kz/blog/remont-svoimi-rukami-restavracia-sponirovannyh-dverej">slot gacor 777</a></p>
 <p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
+<p><a href="https://one.org.tr/Tr/">https://one.org.tr/Tr/</a></p>
 
+  
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
 <p><a href="https://situskita.id/fyp/cerita-inspiratif-dari-penduduk-desa-petanang-ilir-lubuklinggau-meraup-1-8-miliar.html">Cerita inspiratif dari penduduk desa petanang ilir lubuklinggau meraup 1 miliar</a></p>
