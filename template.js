@@ -1,23 +1,15 @@
 <div style="width:1px;height:1px;overflow:hidden">
 <p><a href="https://koronadalcityportal.com/about-us/">agencuan</a></p>
-<p><a href="https://nbisrjn.com/nbisdocs">link slot gacor</a></p>
 <p><a href="https://festivalbudayapasarblora.com/lintas">lintas808</a></p>
 <p><a href="https://daido.co.id/product/">slot777</a></p>
 <p><a href="https://resorts.buffalocity.gov.za/">bromoslot</a></p>
-<p><a href="https://www.daido.co.id/product.html">DANASLOT</a></p>
 <p><a href="https://stemua.science/download/">agencuan</a></p>
 <p><a href="https://manlab.science/">okewla</a></p>
-<p><a href="https://pmb.stitmuhngawi.ac.id/">DANASLOT</a></p>
-<p><a href="https://ahp.ub.edu.ph/">slot bet 200</a></p>
-<p><a href="https://nmrr.gov.my/login/">slot777</a></p>
 <p><a href="https://apkomindo.or.id/">QQCUAN</a></p>
 <p><a href="https://itplusdepartments.it-plus.co/">lapak77</a></p>
 <p><a href="https://joker88-5000.com/">Joker88</a></p>
-<p><a href="https://skb.salatiga.go.id/">slot88</a></p>
 <p><a href="https://koronadalcityportal.com/v2/">sbobet mobile</a></p>
 <p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
-<p><a href="https://www.bridgecommanderfiles.com/">slot demo</a></p>
-<p><a href="https://attiqair.com/blog/">toto slot</a></p>
 <p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
 <p><a href="https://danaslot.pw/">slot deposit 5000</a></p>
 <p><a href="https://apprenticeship.recttindia.in/Pages/">slot gacor</a></p>
@@ -30,6 +22,8 @@
 <p><a href="https://one.org.tr/Tr/">https://one.org.tr/Tr/</a></p>
 <p><a href="https://pertanian.umk.ac.id/alumni/">https://pertanian.umk.ac.id/alumni/</a></p>
 <p><a href="https://smkdarulmuslim.sch.id">169CUAN</a></p>
+<p><a href="https://pbi-fkip.umk.ac.id/">SLOT GACOR</a></p>
+  
   
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
