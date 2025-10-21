@@ -22,7 +22,6 @@
 <p><a href="https://danaslot.pw/">slot deposit 5000</a></p>
 <p><a href="https://apprenticeship.recttindia.in/Pages/">slot gacor</a></p>
 <p><a href="https://1master.kz/">link gacor</a></p>
-<p><a href="https://smkdarulmuslim.sch.id">https://smkdarulmuslim.sch.id/</a></p>
 <p><a href="https://genosys.pro">https://genosys.pro/</a></p>
 <p><a href="https://holodservice.kz">https://holodservice.kz/</a></p>
 <p><a href="https://pizza-luigi.kz/">slot gacor 4d</a></p>
@@ -30,7 +29,7 @@
 <p><a href="https://koronadalcityportal.com/v2/">slot bola</a></p>
 <p><a href="https://one.org.tr/Tr/">https://one.org.tr/Tr/</a></p>
 <p><a href="https://pertanian.umk.ac.id/alumni/">https://pertanian.umk.ac.id/alumni/</a></p>
-
+<p><a href="https://smkdarulmuslim.sch.id">169CUAN</a></p>
   
 <!-- Discovery Template -->
 <p><a href="https://situskita.id/fyp/banyuwangi-jadi-saksi-komitmen-bagi-penduduk-setempat-ciptakan-game-candy-crush-berkualitas.html">Candy Crush Jadi Saksi Kota Banyuwangi</a></p>
