@@ -23,6 +23,7 @@
 <p><a href="https://pertanian.umk.ac.id/alumni/">https://pertanian.umk.ac.id/alumni/</a></p>
 <p><a href="https://smkdarulmuslim.sch.id">169CUAN</a></p>
 <p><a href="https://pbi-fkip.umk.ac.id/">SLOT GACOR</a></p>
+<p><a href="https://one.org.tr/Tr/">LAPAK77</a></p>
   
   
 <!-- Discovery Template -->
