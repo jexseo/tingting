@@ -22,7 +22,6 @@
 <p><a href="https://one.org.tr/Tr/">https://one.org.tr/Tr/</a></p>
 <p><a href="https://pertanian.umk.ac.id/alumni/">https://pertanian.umk.ac.id/alumni/</a></p>
 <p><a href="https://smkdarulmuslim.sch.id">169CUAN</a></p>
-<p><a href="https://pbi-fkip.umk.ac.id/">SLOT GACOR</a></p>
 <p><a href="https://one.org.tr/Tr/">LAPAK77</a></p>
 <p><a href="https://mca.earth/">https://mca.earth</a></p>
 <p><a href="https://media.vsme.vn/">https://media.vsme.vn/</a></p>
