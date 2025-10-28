@@ -27,7 +27,7 @@
 <p><a href="https://media.vsme.vn/">https://media.vsme.vn/</a></p>
 <p><a href="https://emrsrajouri.in/">RAJA88</a></p>
 <p><a href="https://bahta.desa.id/">https://bahta.desa.id/</a></p>
-
+<p><a href="https://simonas.langsakota.go.id/">https://simonas.langsakota.go.id/</a></p>
 
 
   
