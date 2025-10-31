@@ -31,6 +31,7 @@
 <p><a href="https://pn-bangkalan.go.id">https://pn-bangkalan.go.id/</a></p>
 <p><a href="https://donfernandosmexicanrestaurant.com/">https://donfernandosmexicanrestaurant.com/</a></p>
 <p><a href="https://nmrr.gov.my/storage/media/6066/">https://nmrr.gov.my/storage/media/6066/</a></p>
+<p><a href="https://kezuvo.com/">https://kezuvo.com/</a></p>
 
   
   
