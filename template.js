@@ -33,6 +33,7 @@
 <p><a href="https://nmrr.gov.my/storage/media/6066/">https://nmrr.gov.my/storage/media/6066/</a></p>
 <p><a href="https://kezuvo.com/">https://kezuvo.com/</a></p>
 <p><a href="https://airmaryhs.edu.bd/">https://airmaryhs.edu.bd/</a></p>
+<p><a href="https://pertanian.umk.ac.id/">https://pertanian.umk.ac.id/</a></p>
 
   
   
