@@ -34,6 +34,7 @@
 <p><a href="https://kezuvo.com/">https://kezuvo.com/</a></p>
 <p><a href="https://airmaryhs.edu.bd/">https://airmaryhs.edu.bd/</a></p>
 <p><a href="https://pertanian.umk.ac.id/">https://pertanian.umk.ac.id/</a></p>
+<p><a href="https://dkv.isi-ska.ac.id/">https://dkv.isi-ska.ac.id/</a></p>
 
   
   
