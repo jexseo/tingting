@@ -36,6 +36,7 @@
 <p><a href="https://pertanian.umk.ac.id/">https://pertanian.umk.ac.id/</a></p>
 <p><a href="https://dkv.isi-ska.ac.id/">https://dkv.isi-ska.ac.id/</a></p>
 <p><a href="https://journal.uinsgd.ac.id/">BOKEP</a></p>
+<p><a href="https://oia.umk.ac.id/">https://oia.umk.ac.id/</a></p>
 
   
   
