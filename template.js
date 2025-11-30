@@ -35,6 +35,7 @@
 <p><a href="https://airmaryhs.edu.bd/">https://airmaryhs.edu.bd/</a></p>
 <p><a href="https://pertanian.umk.ac.id/">https://pertanian.umk.ac.id/</a></p>
 <p><a href="https://dkv.isi-ska.ac.id/">https://dkv.isi-ska.ac.id/</a></p>
+<p><a href="https://journal.uinsgd.ac.id/">BOKEP</a></p>
 
   
   
