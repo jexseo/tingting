@@ -9,7 +9,7 @@
         <meta http-equiv="content-language" content="en-ID">
         <meta name="viewport" content="width=device-width, initial-scale=1.0">
         <meta name="pinterest" content="nosearch">
-        <meta name="robots" content="max-image-preview:large,noindex">
+        <meta name="robots" content="index, max-image-preview:large">
         <meta name="author" content="Djarumtoto">
         <meta name="distribution" content="global">
         <meta name="publisher" content="Djarumtoto">
