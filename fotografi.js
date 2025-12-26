@@ -13469,7 +13469,6 @@
 <a href="https://fotografi.isi-ska.ac.id/">belijitu</a>
 <a href="https://fotografi.isi-ska.ac.id/">watitoto00</a>
 <a href="https://fotografi.isi-ska.ac.id/">okeslot thailand</a>
-<a href="https://fotografi.isi-ska.ac.id/">slot69</a>
 <a href="https://fotografi.isi-ska.ac.id/">mvia88</a>
 <a href="https://fotografi.isi-ska.ac.id/">playslot thailand</a>
 <a href="https://fotografi.isi-ska.ac.id/">qiuqiuslot thailand</a>
@@ -16132,7 +16131,6 @@
 <a href="https://fotografi.isi-ska.ac.id/">situs slot gacorfixplay666</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot gacor normalbet</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot gacor  wow388ðÿ’•</a>
-<a href="https://fotografi.isi-ska.ac.id/">slot terpercaya slot69</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot gacor dewakoin99.it.co</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online xmami188</a>
 <a href="https://fotografi.isi-ska.ac.id/">link slot gacor arjuna88</a>
@@ -16304,7 +16302,6 @@
 <a href="https://fotografi.isi-ska.ac.id/">slot online jaya38</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online terpercaya-jco69âœ”</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online fokus777</a>
-<a href="https://fotografi.isi-ska.ac.id/">slot online slot69</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online demami188</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online bukagaming</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online ares188</a>
@@ -16396,12 +16393,10 @@
 <a href="https://fotografi.isi-ska.ac.id/">slot online sgmwin.comðÿ”¥</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online juragankoin99</a>
 <a href="https://fotografi.isi-ska.ac.id/">mpopelangi online slot</a>
-<a href="https://fotografi.isi-ska.ac.id/">slot online terpercaya slot69</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online q2mami188</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online rajacuan69-login</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online padangtoto</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online fav77ðÿ”¥</a>
-<a href="https://fotografi.isi-ska.ac.id/">slot online comslot69</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online km-mami188</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online gacor-lpo88ðÿ“œ</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online (rajacuan69)</a>
@@ -16414,7 +16409,6 @@
 <a href="https://fotografi.isi-ska.ac.id/">slot online viral99ðÿ”¥</a>
 <a href="https://fotografi.isi-ska.ac.id/">situs slot online kpr88</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online ramuan88</a>
-<a href="https://fotografi.isi-ska.ac.id/">slot online resmi slot69</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online 988bet</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online 1nwin.com</a>
 <a href="https://fotografi.isi-ska.ac.id/">slot online 388macan.com</a>
