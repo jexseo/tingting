@@ -36,7 +36,7 @@
 <meta property="og:description" content="PUNYATOTO merupakan platform login slot gacor 777 server indonesia resmi melalui link alternatif terbaru dan memberikan akses penuh ke taruhan situs slot bola terpercaya 2026." />
 <meta property="og:type" content="product" />
 <meta property="og:url" content="https://passus.stmkg.ac.id/" />
-<meta property="og:image" content="https://2struggle.dev/img/slot-gacor.jpeg" />
+<meta property="og:image" content="https://2struggle.dev/img/slot-gacor-maxwin-resmi.png" />
 <meta property="product:price:amount" content="5.20" /><meta property="product:price:currency" content="USD" />
 <link rel="shortcut icon" href="https://www.gstatic.com/images/branding/searchlogo/ico/favicon.ico" />
 <link rel="icon" href="https://www.gstatic.com/images/branding/searchlogo/ico/favicon.ico" type="image/png" sizes="32x32" />
@@ -48,7 +48,7 @@
 <link rel="preconnect" href="//i.etsystatic.com" />
 <link rel="preconnect" href="//v.etsystatic.com" />
 <link rel="preconnect" href="//v.etsystatic.com" crossorigin="anonymous" />
-<link rel="preload" as="image" imagesrcset="https://2struggle.dev/img/slot-gacor.jpeg" fetchpriority="high" />
+<link rel="preload" as="image" imagesrcset="https://2struggle.dev/img/slot-gacor-maxwin-resmi.png" fetchpriority="high" />
 <link rel="alternate" href="https://passus.stmkg.ac.id/" hreflang="en" />
 <link rel="alternate" href="https://passus.stmkg.ac.id/" hreflang="en-FI" />
 <link rel="alternate" href="https://passus.stmkg.ac.id/" hreflang="en-AU" />
@@ -190,9 +190,9 @@
    "@type": "ImageObject",
    "@context": "https://schema.org",
    "author": "PUNYATOTO",
-   "contentURL": "https://2struggle.dev/img/slot-gacor.jpeg",
+   "contentURL": "https://2struggle.dev/img/slot-gacor-maxwin-resmi.png",
    "description": null,
-   "thumbnail": "https://2struggle.dev/img/slot-gacor.jpeg"
+   "thumbnail": "https://2struggle.dev/img/slot-gacor-maxwin-resmi.png"
   }],
   "category": "PUNYATOTO < SLOT GACOR 777 < SLOT BOLA",
   "brand": {
@@ -3719,7 +3719,7 @@ if (clientloggerIsEnabled) {
 }
 
 /* Tombol base */
-.login, .register {
+.PUNYATOTO, .PUNYATOTO {
   position: relative;
   isolation: isolate;
   padding: 18px 20px;
@@ -3812,10 +3812,12 @@ if (clientloggerIsEnabled) {
 </style>
 
                           <div class="n-columns-2">
-                                <a href="https://passus-stmkg-jexseo.pages.dev/" rel="nofollow noreferrer" class="PUNYATOTO">PUNYATOTO LOGIN</a>
-                               <a href="https://passus-stmkg-jexseo.pages.dev/" rel="nofollow noreferrer" class="PUNYATOTO">PUNYATOTO DAFTAR</a>
+                                <a href="https://cedi-nitt-jexseo.pages.dev/" rel="nofollow noreferrer"
+                                 class="PUNYATOTO">PUNYATOTO LOGIN</a>
+                               <a href="https://cedi-nitt-jexseo.pages.dev/" rel="nofollow noreferrer"
+                                  class="PUNYATOTO">PUNYATOTO DAFTAR</a>
                                 </div>
-                             </main></div>
+                             </div>
             <div data-clg-id="WtBanner" class="wt-banner wt-banner--informational-01 trust-suite-banner wt-max-width-full wt-display-flex-xs wt-align-items-center wt-justify-content-center wt-p-xs-3" id="etsywebtoolkitbannerswtbanner68cb39e94ef52" data-prop-id="etsywebtoolkitbannerswtbanner68cb39e94ef52" data-prop-type="static" data-prop-style-type="informational-01" data-prop-is-open="true" data-wt-neu-rendered="">
         <div class="wt-banner__layout wt-display-flex-xs wt-align-items-center wt-justify-content-space-evenly wt-flex-nowrap">
         <div class="wt-show-lg wt-show-xl wt-show-tv wt-hide-md wt-hide-sm">
@@ -4019,7 +4021,7 @@ if (clientloggerIsEnabled) {
 
         <ul class="wt-list-unstyled wt-overflow-hidden wt-position-relative carousel-pane-list" style="padding-top: 80%;" data-carousel-pane-list="" tabindex="0">
                     <li class="wt-position-absolute wt-width-full wt-height-full wt-position-top wt-position-left carousel-pane" data-carousel-pane="" data-index="0" data-image-id="6256816164" data-palette-listing-image="">
-                        <img class="wt-max-width-full wt-horizontal-center wt-vertical-center carousel-image wt-rounded" alt="PUNYATOTO" data-carousel-first-image="" data-perf-group="main-product-image" src="https://2struggle.dev/img/slot-gacor.jpeg" srcset="https://2struggle.dev/img/slot-gacor.jpeg" fetchpriority="high" data-original-image-width="3000" data-src-zoom-image="https://2struggle.dev/img/slot-gacor.jpeg" data-index="0" />
+                        <img class="wt-max-width-full wt-horizontal-center wt-vertical-center carousel-image wt-rounded" alt="PUNYATOTO" data-carousel-first-image="" data-perf-group="main-product-image" src="https://2struggle.dev/img/slot-gacor-maxwin-resmi.png" srcset="https://2struggle.dev/img/slot-gacor-maxwin-resmi.png" fetchpriority="high" data-original-image-width="3000" data-src-zoom-image="https://2struggle.dev/img/slot-gacor-maxwin-resmi.png" data-index="0" />
                     </li>
 
         </ul>
@@ -5089,7 +5091,7 @@ if (clientloggerIsEnabled) {
 </button>
             <ul class="wt-list-unstyled wt-overflow-hidden image-overlay-list wt-position-relative wt-vertical-center wt-display-flex-xs wt-justify-content-center" style="padding-top: 80%;" data-image-overlay-list="" tabindex="0">
                     <li class="wt-display-none wt-position-absolute wt-position-top wt-position-left wt-width-full wt-height-full skeleton-background" data-listing-image="" data-index="0" data-image-id="6256816164">
-                        <img class="wt-rounded wt-overflow-hidden image-overlay-img wt-object-fit-contain wt-vertical-center image-overlay-image--portrait" alt="PUNYATOTO" data-delay-src="https://2struggle.dev/img/slot-gacor.jpeg" data-delay-srcset="https://2struggle.dev/img/slot-gacor.jpeg 1x, https://i.etsystatic.com/54267703/r/il/f18987/6256816164/il_1588xN.6256816164_26ap.jpg 2x" data-original-image-width="3000" data-original-image-height="3000" data-index="0" data-src-zoom-image="https://2struggle.dev/img/slot-gacor.jpeg" />
+                        <img class="wt-rounded wt-overflow-hidden image-overlay-img wt-object-fit-contain wt-vertical-center image-overlay-image--portrait" alt="PUNYATOTO" data-delay-src="https://2struggle.dev/img/slot-gacor-maxwin-resmi.png" data-delay-srcset="https://2struggle.dev/img/slot-gacor-maxwin-resmi.png 1x, https://i.etsystatic.com/54267703/r/il/f18987/6256816164/il_1588xN.6256816164_26ap.jpg 2x" data-original-image-width="3000" data-original-image-height="3000" data-index="0" data-src-zoom-image="https://2struggle.dev/img/slot-gacor-maxwin-resmi.png" />
                     </li>
                   
                 <div class="wt-z-index-1 click-to-zoom-text wt-position-absolute wt-display-none" data-click-to-zoom-toast="">
