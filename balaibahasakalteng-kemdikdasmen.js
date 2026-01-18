@@ -1885,7 +1885,6 @@
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">indoboss6d</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">goaloo188</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">fosil77</a>
-<a href="https://balaibahasakalteng.kemendikdasmen.go.id/">foxybet77</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">sateslot</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">gb77</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">dtg88</a>
@@ -2224,7 +2223,6 @@
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">garena4d</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">tokoslot77</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">svip1</a>
-<a href="https://balaibahasakalteng.kemendikdasmen.go.id/">sunbet388</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">sobattoto</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">aoncash88</a>
 <a href="https://balaibahasakalteng.kemendikdasmen.go.id/">tigoals808</a>
