@@ -39,6 +39,7 @@
 <p><a href="https://oia.umk.ac.id/">https://oia.umk.ac.id/</a></p>
 <p><a href="https://pg.bowen.edu.ng/">https://pg.bowen.edu.ng/</a></p>
 <p><a href="https://dkv.isi-ska.ac.id/">DJARUMTOTO</a></p>
+<p><a href="https://www.bma.gov.za/newsletter/">ALEXISTOTO</a></p>
 
   
   
