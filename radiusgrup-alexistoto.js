@@ -205,24 +205,24 @@
     "toto slot", 
     "bandar togel", 
     "toto macau 4d", 
-    "toto macau"
-    "togel macau"
-    "slot macau"
-    "toto 4d"
-    "slot 4d"
-    "4d slot"
-    "bandar toto"
-    "slot gacor 4d"
-    "slot hoki"
-    "slot gacor hari ini"
-    "layanan togel"
-    "raih hoki"
-    "bandar toto"
-    "macau 4d"
-    "macau"
-    "togel hari ini"
-    "toto togel"
-    "slottoto"
+    "toto macau",
+    "togel macau",
+    "slot macau",
+    "toto 4d",
+    "slot 4d",
+    "4d slot",
+    "bandar toto",
+    "slot gacor 4d",
+    "slot hoki",
+    "slot gacor hari ini",
+    "layanan togel",
+    "raih hoki",
+    "bandar toto",
+    "macau 4d",
+    "macau",
+    "togel hari ini",
+    "toto togel",
+    "slottoto",
   ],
   "inLanguage": "id-ID",
   "isAccessibleForFree": true,
